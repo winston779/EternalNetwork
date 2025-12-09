@@ -1,6 +1,6 @@
 # Eternal Network官网地址
 
-最新地址：[etcloud.top](https://etcloud.top/#/register?code=Y92TmZRv)
+最新地址：[etcloud.top](https://1fdc6f1bea5e6127.cdn.jiashule.com/#/register?code=Y92TmZRv)
 
 ## Eternal Network介绍
 
